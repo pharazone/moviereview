@@ -1,5 +1,9 @@
 # 比彩蛋隐藏的更深的，是上世纪游戏文化的历史——关于《头号玩家》的故事
 
+文： Phil Tsai
+
+![头号玩家1](https://ia.media-imdb.com/images/M/MV5BMjAxNTUyMDI3Ml5BMl5BanBnXkFtZTgwOTY0MjQxNTM@._V1_SX1777_CR0,0,1777,736_AL_.jpg)
+
 ## 0x00 前言
 
 我 特 么 太 爱 这 部 电 影 了 ！（以下省略10000个内心和脑补过场CG
