@@ -179,9 +179,6 @@ Morrow是一个有理想的合伙人，但是Hallidy沉迷于自己的游戏世�
 ![](https://i.ytimg.com/vi/C_YqJ_aimkM/maxresdefault.jpg)
 *<center>Sing Street这部电影里典型的80年代风格</center>*
 
-
-
-
 ![](https://i.ytimg.com/vi/y7P28fwIyAo/maxresdefault.jpg)
 *<center>合金装备5-幻痛里对于80年代老歌的情怀</center>*
 
